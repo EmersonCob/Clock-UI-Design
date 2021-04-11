@@ -17,16 +17,16 @@
 
 https://www.youtube.com/watch?v=Qdcj4rV82ek
 
-## Reproduced
+### Reproduced
 
 **Emerson Costa**
 
-Encontre-me nas redes sociais: 
+## Encontre-me nas redes sociais: 
 
-Instagram
+*Instagram*
 
 @emerson_b_costa
 
-Linkedin
+*Linkedin*
 
 https://www.linkedin.com/in/joseemersoncosta/
